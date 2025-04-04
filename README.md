@@ -10,9 +10,16 @@ Sprunki Plus codes are special alphanumeric sequences that players can redeem to
 
 Here are all the working Sprunki Plus codes you can use right now:
 
-- Option 1 to get codes: [Sprunki Plus Codes](https://sprunki-incredibox.org/game/sprunki-plus-codes)
-- Option 2 to get codes: [Sprunki Plus Codes](https://sprunki.la/game/sprunki-plus-codes)
-- Option 3 to get codes: [Sprunki Plus Codes](https://scrunkly.org/game/sprunki-plus-codes)
+- `youstolemychoir` - Redeem this code to get Semi Hemi.
+- `6` - Redeem this code to get Hex.
+- `christiansprunki` - Redeem this code to get Nunzy.
+- `🥬` - Redeem this code to get leafern.
+- `Rewind` - Redeem this code to unlock the Obby mod.
+- `1996` - Redeem this code after completing the Obby mod to unlock the new mode.
+
+- Option 1 to get more codes: [Sprunki Plus Codes](https://sprunki-incredibox.org/game/sprunki-plus-codes)
+- Option 2 to get more codes: [Sprunki Plus Codes](https://sprunki.la/game/sprunki-plus-codes)
+- Option 3 to get more codes: [Sprunki Plus Codes](https://scrunkly.org/game/sprunki-plus-codes)
 
 These Sprunki Plus codes are time-sensitive, so redeem them promptly before they expire. The developers haven't announced any code expirations yet, but history shows they typically rotate codes every few months to reward active players. Bookmark this page and check back regularly for new Sprunki Plus codes as we update our list whenever fresh codes are released.
 
