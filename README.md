@@ -6,7 +6,7 @@
 
 Sprunki Plus codes are special alphanumeric sequences that players can redeem to unlock exclusive characters in the popular music-based Roblox game. These free Sprunki Plus codes provide access to rare characters like Semi Hemi, Hex, and Nunzy that aren't available through normal gameplay. The developers periodically release new Sprunki Plus redemption codes through their official social media channels as rewards for dedicated players. Redeeming these codes enhances your musical creativity by giving you more unique sound combinations to experiment with. Unlike standard unlocks that require completing challenges, Sprunki Plus codes offer instant access to special characters simply by entering them in the game's redemption menu.
 
-## Current Active Sprunki Plus Codes (Updated 2023)
+## Current Active Sprunki Plus Codes (Updated 2025)
 
 Here are all the working Sprunki Plus codes you can use right now:
 
